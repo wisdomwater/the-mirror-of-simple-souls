@@ -1,0 +1,5 @@
+In the early 14th century, the French mystic **Marguerite Porete** wrote *The Mirror of Simple Souls*, a profound meditation on divine love and the soul’s transformation. She describes a love so complete that it gently dissolves the anxious self—until the soul rests freely in God. In this vision, the spiritual journey is not about striving or perfecting oneself, but about surrendering into the boundless generosity of Love itself.
+
+Though Marguerite’s writing is beautiful, its medieval language can be difficult for modern readers. This book presents her mystical vision as **100 short daily devotional readings**, each designed to be read slowly in just a few minutes. The reflections express the heart of her teaching in warm, contemplative language while preserving the depth of her insight.
+
+Each day concludes with a simple **breath prayer**, inviting readers to move beyond reflection into quiet experience. Rather than teaching us how to reach God, these pages gently reveal the Love that has already surrounded us—and the freedom that unfolds when we finally rest within it.
